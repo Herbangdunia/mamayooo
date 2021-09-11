@@ -1,0 +1,2 @@
+# mamayooo
+Cepat,senyap,tepat
